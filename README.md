@@ -1,6 +1,8 @@
-<a href="https://imgbox.com/FEwaCSgs" target="_blank"><img src="https://images2.imgbox.com/72/1a/FEwaCSgs_o.png" alt="image host"/></a>
+<a href="https://imgbox.com/ObKLgo5h" target="_blank"><img src="https://images2.imgbox.com/aa/e9/ObKLgo5h_o.png" alt="image host"/></a>
 
-<p align="center"> 𓇼𓐄 ˚◞ 𝘚𝘱𝘢𝘳𝘹𝘪𝘦 𝘢𝘯𝘥 𝘚𝘱𝘢𝘳𝘬𝘭𝘦, 𝘵𝘩𝘦 𝘔𝘢𝘴𝘬 𝘢𝘯𝘥 𝘵𝘩𝘦 𝘍𝘰𝘰𝘭 𝘢𝘳𝘦 𝘧𝘶𝘯𝘥𝘢𝘮𝘦𝘯𝘵𝘢𝘭𝘭𝘺 𝘵𝘩𝘦 𝘴𝘢𝘮𝘦 .<p/>
+<a href="https://imgbox.com/CsLLCEy3" target="_blank"><img src="https://images2.imgbox.com/69/34/CsLLCEy3_o.png" alt="image host"/></a>
+
+<p align="center"> 𓇼𓐄 ˚◞ I usually just want to run away.. <p/>
 
 
 
@@ -53,7 +55,6 @@
 
  </details>
 
-<a href="https://imgbox.com/mqfsFXYW" target="_blank"><img src="https://images2.imgbox.com/da/39/mqfsFXYW_o.png" alt="image host"/></a>
 
 
 
