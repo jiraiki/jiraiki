@@ -29,7 +29,7 @@
 <details> <summary><b>about me</b></summary>
  hello its kim!
  ⸜(｡˃ ᵕ ˂)⸝♡
- proud c0 L1 day 1 huohuo owner <3
+ proud c0 L1 day 1 huohuo owner <3 i love her
  dni : normal criteria , , , 
  int : people with my fandoms !
  ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
