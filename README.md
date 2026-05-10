@@ -10,7 +10,7 @@
 <details> <summary><b>socials</b></summary>
  
 
-<a href="https://imgbox.com/iIIpCCJj" target="_blank"><img src="https://images2.imgbox.com/81/5a/iIIpCCJj_o.png" alt="image host"/></a>
+
 
 
 [art](https://cara.app/defxmafuui) .
