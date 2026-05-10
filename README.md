@@ -2,7 +2,8 @@
 
 <a href="https://imgbox.com/CsLLCEy3" target="_blank"><img src="https://images2.imgbox.com/69/34/CsLLCEy3_o.png" alt="image host"/></a>
 
-<p align="center"> 𓇼𓐄 ˚◞ I usually just want to run away.. <p/>
+<p align="center"> 𓇼𓐄 ˚◞ 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=38AE4296&width=435&lines=I+usually+just+want+to+run+away..;Still%2C+every+time+I+try%2C+Mr.+Tail+;sends+me+straight+back+to+the+enemy.;Sigh%2C+why+can't+he+just+leave+me+be%3F" alt="Typing SVG" /></a>
 
 
 
