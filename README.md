@@ -1,6 +1,6 @@
 <a href="https://imgbox.com/ObKLgo5h" target="_blank"><img src="https://images2.imgbox.com/aa/e9/ObKLgo5h_o.png" alt="image host"/></a>
 
-<a href="https://imgbox.com/CsLLCEy3" target="_blank"><img src="https://images2.imgbox.com/69/34/CsLLCEy3_o.png" alt="image host"/></a>
+<a href="https://imgbox.com/RD05hDxA" target="_blank"><img src="https://images2.imgbox.com/4e/a8/RD05hDxA_o.png" alt="image host"/></a>
 
 <p align="center"> 𓇼𓐄 ˚◞ 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=38AE4296&width=435&lines=I+usually+just+want+to+run+away..;Still%2C+every+time+I+try%2C+Mr.+Tail+;sends+me+straight+back+to+the+enemy.;Sigh%2C+why+can't+he+just+leave+me+be%3F" alt="Typing SVG" /></a>
@@ -37,8 +37,8 @@
  she / him / angel ,
  i believe in kangel !.
  𖦹 ׂ 𓈒  ／ ⋆ ۪
- Check prounouns Page for prounouns + nicknames pls.
-
+ Check prounouns Page for prounouns + nicknames pls. THE ARTIST IS bluebottleszz
+AND I LOVE HER ART!! (pfp)
  </details>
 
  <details> <summary><b>fandoms</b></summary>
