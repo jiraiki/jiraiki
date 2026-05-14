@@ -1,9 +1,8 @@
-<a href="https://imgbox.com/ObKLgo5h" target="_blank"><img src="https://images2.imgbox.com/aa/e9/ObKLgo5h_o.png" alt="image host"/></a>
+<a href="https://imgbox.com/v52jIVIU" target="_blank"><img src="https://images2.imgbox.com/34/e8/v52jIVIU_o.png" alt="image host"/></a>
 
-<a href="https://imgbox.com/zBIyeNHq" target="_blank"><img src="https://images2.imgbox.com/21/67/zBIyeNHq_o.png" alt="image host"/></a>
+<a href="https://imgbox.com/fiPZciVP" target="_blank"><img src="https://images2.imgbox.com/1e/b7/fiPZciVP_o.png" alt="image host"/></a>
 
-<p align="center"> 𓇼𓐄 ˚◞ 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=38AE4296&width=435&lines=I+usually+just+want+to+run+away..;Still%2C+every+time+I+try%2C+Mr.+Tail+;sends+me+straight+back+to+the+enemy.;Sigh%2C+why+can't+he+just+leave+me+be%3F" alt="Typing SVG" /></a>
+<p align="center"> ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7AEE4E5&width=435&lines=oh+sweet+child..+you're+so+divine.+%E2%99%A1" alt="Typing SVG" /></a>
 
 
 
@@ -57,6 +56,6 @@ AND I LOVE HER ART!! (pfp)
 
  </details>
 
-
+<a href="https://imgbox.com/C5d1oldi" target="_blank"><img src="https://images2.imgbox.com/df/5a/C5d1oldi_o.gif" alt="image host"/></a>
 
 
