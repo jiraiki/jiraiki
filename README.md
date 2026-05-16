@@ -1,9 +1,14 @@
-<a href="https://imgbox.com/v52jIVIU" target="_blank"><img src="https://images2.imgbox.com/34/e8/v52jIVIU_o.png" alt="image host"/></a>
+<a href="https://imgbox.com/lwj5mXgZ" target="_blank"><img src="https://images2.imgbox.com/61/8d/lwj5mXgZ_o.png" alt="image host"/></a>
 
-<a href="https://imgbox.com/fiPZciVP" target="_blank"><img src="https://images2.imgbox.com/1e/b7/fiPZciVP_o.png" alt="image host"/></a>
+<a href="https://imgbox.com/HKWFukSX" target="_blank"><img src="https://thumbs2.imgbox.com/10/16/HKWFukSX_t.png" alt="image host"/></a>
+<a href="https://imgbox.com/07eOXktf" target="_blank"><img src="https://thumbs2.imgbox.com/84/8a/07eOXktf_t.png" alt="image host"/></a>
+<a href="https://imgbox.com/w2ILXnrJ" target="_blank"><img src="https://thumbs2.imgbox.com/f8/ea/w2ILXnrJ_t.png" alt="image host"/></a>
 
-<p align="center"> ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7AEE4E5&width=435&lines=oh+sweet+child..+you're+so+divine.+%E2%99%A1" alt="Typing SVG" /></a>
 
+
+
+<p align="center"> 　◞◟<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7AEE4E5&width=435&lines=oh+sweet+child..+you're+so+divine.+%E2%99%A1" alt="Typing SVG" /></a>
+<p/>
 
 
 <details> <summary><b>socials</b></summary>
