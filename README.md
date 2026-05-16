@@ -40,8 +40,7 @@
  she / him / angel ,
  i believe in kangel !.
  𖦹 ׂ 𓈒  ／ ⋆ ۪
- Check prounouns Page for prounouns + nicknames pls. THE ARTIST IS bluebottleszz
-AND I LOVE HER ART!! (pfp)
+ Check prounouns Page for prounouns + nicknames pls. 
  </details>
 
  <details> <summary><b>fandoms</b></summary>
