@@ -7,7 +7,7 @@
 
 
 <p align="center"> 　◞◟
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7C4EFBA&width=435&lines=I+don't+want+to+just+look+like+her.;I+want+to+be+her!" alt="Typing SVG" /></a> 
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7C4EFBA&center=true&multiline=true&width=435&lines=I+don't+want+to+just+look+like+her.;I+want+to+be+her!" alt="Typing SVG" /></a>
 
 
 <details> <summary><b>socials</b></summary>
