@@ -51,25 +51,32 @@
 </details>
 
 <details>
+<summary>
 
-<summary align="center">
-
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=1&pause=999999&color=F7C4EF&center=true&vCenter=true&repeat=false&width=120&height=20&lines=info" />
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Cute+Font&size=28&duration=1&pause=999999&color=FFD6EC&center=true&vCenter=true&repeat=false&width=260&height=40&lines=%E2%82%8A%CB%9A%E2%8A%B9%E2%99%A1+about+me+%E2%99%A1%E2%8A%B9%CB%9A%E2%82%8A" />
+</p>
 
 </summary>
 
+<div align="center">
 
- hello its kim!
- ⸜(｡˃ ᵕ ˂)⸝♡
- proud e0 s1 day 1 huohuo owner <3 i love her . .
- dni : normal criteria , , , 
- int : people with my fandoms !
- ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
- she / him / angel ,
- i believe in kangel !.
- 𖦹 ׂ 𓈒  ／ ⋆ ۪
- Check prounouns Page for prounouns + nicknames pls. 
- </details>
+<img src="https://files.catbox.moe/o8ldef.gif" width="40">
+
+hello its kim!  
+⸜(｡˃ ᵕ ˂)⸝♡  
+proud e0 s1 day 1 huohuo owner <3 i love her . .  
+dni : normal criteria , , ,  
+int : people with my fandoms !  
+◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟  
+she / him / angel ,  
+i believe in kangel !.  
+𖦹 ׂ 𓈒  ／ ⋆ ۪  
+Check pronouns Page for pronouns + nicknames pls.
+
+</div>
+
+</details>
 
  <details>
 
