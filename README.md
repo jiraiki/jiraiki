@@ -11,28 +11,36 @@
 
 
 <details>
+<summary>
 
-<summary align="center">
-
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=1&pause=999999&color=F7C4EF&center=true&vCenter=true&repeat=false&width=120&height=20&lines=socials" />
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=30&duration=1&pause=999999&color=FFD6EC&center=true&vCenter=true&repeat=false&width=250&height=40&lines=%E0%AD%A8%E0%AD%A7+socials+%E0%AD%A8%E0%AD%A7" />
+</p>
 
 </summary>
 
 
+<div align="center">
 
+　୨୧ ⸝⸝ 
+<a href="https://cara.app/defxmafuui">art</a> ♡ 
+<a href="https://defxmafuui.atabook.org/">ata</a> ♡ 
+<a href="https://siggiezai.straw.page">strawpage</a> ♡ 
+<a href="https://pin.it/5jP8RpfSU">pin</a>　
 
+</div>
 
-[art](https://cara.app/defxmafuui) .
-[ata](https://defxmafuui.atabook.org/) .
-[strawpage](https://siggiezai.straw.page) .
-[pin](https://pin.it/5jP8RpfSU)
+<div align="center">
 
-   [Prounouns](https://en.pronouns.page/@strvbykim) .
-[de Prounouns](https://pronomen.net/@strvbykim) 
-              
+୨୧ ⸝⸝ 
+<a href="https://en.pronouns.page/@strvbykim">pronouns</a> ♡ 
+<a href="https://pronomen.net/@strvbykim">de prounouns</a>
 
- 
-![](https://komarev.com/ghpvc/?username=strvbykimi&label=(///ω///)♪)
+<div align="center">
+
+<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+cute+visitors+%E0%AD%A8%E0%AD%A7&color=ffd6ec&style=flat">
+
+</div>
 
 </details>
 
