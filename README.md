@@ -89,6 +89,10 @@
 
  </details>
 
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=1&pause=999999&color=FFD6EC&center=true&vCenter=true&repeat=false&width=420&height=30&lines=%E2%9C%A6+click+the+arrows!+%3E%60%3C+%E2%9C%A6" />
+</p>
+
 <a href="https://imgbox.com/C5d1oldi" target="_blank"><img src="https://images2.imgbox.com/df/5a/C5d1oldi_o.gif" alt="image host"/></a>
 
 
