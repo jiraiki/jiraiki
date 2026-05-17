@@ -22,11 +22,17 @@
 
 <div align="center">
 
-　୨୧ ⸝⸝ 
+<div align="center">
+
+<img src="https://files.catbox.moe/j46uyu.gif" width="22">
+
+୨୧ ⸝⸝ 
 <a href="https://cara.app/defxmafuui">art</a> ♡ 
 <a href="https://defxmafuui.atabook.org/">ata</a> ♡ 
 <a href="https://siggiezai.straw.page">strawpage</a> ♡ 
-<a href="https://pin.it/5jP8RpfSU">pin</a>　
+<a href="https://pin.it/5jP8RpfSU">pin</a>
+
+<img src="https://files.catbox.moe/j46uyu.gif" width="22">
 
 </div>
 
