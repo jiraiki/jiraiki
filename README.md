@@ -72,3 +72,7 @@
 </table>
 
 [![57144178b2b4606f6cc5c68d81ad6ad4.gif](https://i.postimg.cc/SNG3NzGZ/57144178b2b4606f6cc5c68d81ad6ad4.gif)](https://postimg.cc/N55pdFST)
+
+૮ ˶ᵔ ﻌ ᵔ˶ ა
+<a href="https://rentry.co/furibinaa">inspo</a>
+, also me n' my beloved ♡
