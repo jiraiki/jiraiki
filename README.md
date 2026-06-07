@@ -76,3 +76,5 @@
 ૮ ˶ᵔ ﻌ ᵔ˶ ა
 <a href="https://rentry.co/furibinaa">inspo</a>
 , also me n' my beloved ♡
+
+[![40e9b420e0528051d772c9d66dd44e50.jpg](https://i.postimg.cc/50X3Sqx5/40e9b420e0528051d772c9d66dd44e50.jpg)](https://postimg.cc/G81GcDT9)
