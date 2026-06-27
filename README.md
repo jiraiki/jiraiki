@@ -1,6 +1,4 @@
-[![whisper-20260614002811.png](https://i.postimg.cc/RZ4PWRy5/whisper-20260614002811.png)](https://postimg.cc/nCSK5vn0)
-
-
+[![ezgif-51f895808e3b21b4.gif](https://i.postimg.cc/yx5jN9Xj/ezgif-51f895808e3b21b4.gif)](https://postimg.cc/n94BRXW9)
 
 
 <p align="center">
