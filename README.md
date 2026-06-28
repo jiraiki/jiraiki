@@ -6,7 +6,7 @@
 <p align="center">
 
 <img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+visitors+%E0%AD%A8%E0%AD%A7&color=FEDAE7&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა [![tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp](https://i.postimg.cc/CLYC7KN2/tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp)](https://postimg.cc/WtWJbTxm)
-[rentry](https://rentry.co/kiminuu)
+[rentry](https://rentry.co/kimsc)
 
 </p>
 
