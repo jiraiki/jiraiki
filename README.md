@@ -1,18 +1,20 @@
-<img width="2048" height="1135" alt="1000163460" src="https://github.com/user-attachments/assets/5e385616-e2e1-428d-9870-fb3aed4d454a" />
+<img width="736" height="512" alt="1000166252" src="https://github.com/user-attachments/assets/26145a88-998c-4225-92ff-6fbb6c4b26e8" />
+
 
 
 
 
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+visitors+%E0%AD%A8%E0%AD%A7&color=FEDAE7&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა [![tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp](https://i.postimg.cc/CLYC7KN2/tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp)](https://postimg.cc/WtWJbTxm)
+<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+visitors+%E0%AD%A8%E0%AD%A7&color=8D6E67&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა [![tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp](https://i.postimg.cc/CLYC7KN2/tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp)](https://postimg.cc/WtWJbTxm)
 [rentry](https://rentry.co/kimsc)
 
 </p>
 
 
-<p align="center"> I was born to meet u ♡</p>
-
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=22&duration=1&pause=999999&color=8D6E63&center=true&vCenter=true&repeat=false&width=420&height=30&lines=%22love+was+always+quieter+than+goodbye.%22" />
+</p>
 
 
 <p align="center">
