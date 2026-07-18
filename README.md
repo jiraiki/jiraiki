@@ -1,3 +1,7 @@
+<img width="2048" height="726" alt="1000166267" src="https://github.com/user-attachments/assets/98afa196-5050-4b1b-9956-ec0ab6dcc32c" />
+
+
+
 <img width="736" height="512" alt="1000166252" src="https://github.com/user-attachments/assets/26145a88-998c-4225-92ff-6fbb6c4b26e8" />
 
 
@@ -13,7 +17,7 @@
 
 
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=22&duration=1&pause=999999&color=8D6E63&center=true&vCenter=true&repeat=false&width=420&height=30&lines=%22love+was+always+quieter+than+goodbye.%22" />
+<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=22&duration=3500&pause=1200&color=8D6E63&center=true&vCenter=true&width=450&height=30&lines=%22love+was+always+quieter+than+goodbye.%22" />
 </p>
 
 
