@@ -18,6 +18,8 @@
 <img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=22&duration=3500&pause=1200&color=323232&center=true&vCenter=true&width=450&height=30&lines=%22i+love+koi+fish,+i+wonder+why?%22" />
 </p>
 
+<img width="736" height="236" alt="1000167727" src="https://github.com/user-attachments/assets/644adabb-0bcd-4024-9db3-8dc486040383" />
+
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
