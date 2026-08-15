@@ -1,11 +1,11 @@
-<img width="736" height="736" alt="1000167724" src="https://github.com/user-attachments/assets/ca5167f1-3428-478e-8896-27e4e171b646" />
+<img width="3353" height="2247" alt="1000171552" src="https://github.com/user-attachments/assets/3151df47-8d5e-43cd-9658-3b8e35ba37a7" />
 
 
 
 
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+visitors+%E0%AD%A8%E0%AD%A7&color=D0C9C3&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა [![tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp](https://i.postimg.cc/CLYC7KN2/tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp)](https://postimg.cc/WtWJbTxm)
+<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+visitors+%E0%AD%A8%E0%AD%A7&color=7589A4&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა [![tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp](https://i.postimg.cc/CLYC7KN2/tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp)](https://postimg.cc/WtWJbTxm)
 [rentry](https://rentry.co/kimsc)
 
 
@@ -18,19 +18,27 @@
 <img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=22&duration=3500&pause=1200&color=323232&center=true&vCenter=true&width=450&height=30&lines=%22i+love+koi+fish,+i+wonder+why?%22" />
 </p>
 
-<img width="736" height="236" alt="1000167727" src="https://github.com/user-attachments/assets/644adabb-0bcd-4024-9db3-8dc486040383" />
+<img width="3352" height="1415" alt="1000171555" src="https://github.com/user-attachments/assets/f370dce2-5045-436e-b62a-6fb856286d77" />
 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31u5lnip3jjbu4acxipaxjnb23bm&cover_image=true&theme=novatorem&show_offline=true&background_color=d6c3c9&interchange=false&profanity=false&hide_remaster=false&bar_color=c2a3a8&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31u5lnip3jjbu4acxipaxjnb23bm&cover_image=true&theme=novatorem&show_offline=true&background_color=4B6264&interchange=false&profanity=false&hide_remaster=false&bar_color=c2a3a8&bar_color_cover=false">
   </a>
 </p>
 
 <p align="center">
 
+<img width="3352" height="491" alt="1000171556" src="https://github.com/user-attachments/assets/d7c7d204-89b1-4dad-87ac-0560852c75b4" />
 
 
+<p align="center">
+  <a href="https://pin.it/4FwL9Uuzd">pinterest</a>
+  ·
+  <a href="https://www.tiktok.com/@strvbykim?_r=1&_t=ZN-98uARrxsxCY">tt</a>
+  𔘓   ֹ  
+  
+</p>
 
 
 <p align="center">
