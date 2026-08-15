@@ -6,7 +6,7 @@
 
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+visitors+%E0%AD%A8%E0%AD%A7&color=7589A4&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა <img width="20" height="20" alt="1000171588" src="https://github.com/user-attachments/assets/4fe2f585-459e-4281-9a81-fc33598512c9" />
+<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+ichiharulings+%E0%AD%A8%E0%AD%A7&color=7589A4&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა <img width="20" height="20" alt="1000171588" src="https://github.com/user-attachments/assets/4fe2f585-459e-4281-9a81-fc33598512c9" />
 [rentry](https://rentry.co/kimsc)
 
 
