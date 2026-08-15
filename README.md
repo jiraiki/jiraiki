@@ -5,7 +5,7 @@
 
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+visitors+%E0%AD%A8%E0%AD%A7&color=7589A4&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა [![tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp](https://i.postimg.cc/CLYC7KN2/tumblr-5470901371a5656bcca136c9b1aede17-94ba3dbf-75.webp)](https://postimg.cc/WtWJbTxm)
+<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+visitors+%E0%AD%A8%E0%AD%A7&color=7589A4&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა <img width="20" height="20" alt="1000171588" src="https://github.com/user-attachments/assets/4fe2f585-459e-4281-9a81-fc33598512c9" />
 [rentry](https://rentry.co/kimsc)
 
 
@@ -32,8 +32,11 @@
 <img width="3352" height="491" alt="1000171556" src="https://github.com/user-attachments/assets/d7c7d204-89b1-4dad-87ac-0560852c75b4" />
 
 
+
 <p align="center">
-  <a href="https://pin.it/4FwL9Uuzd">pinterest</a>
+  <img width="18" height="19" alt="1000171587" src="https://github.com/user-attachments/assets/e677e882-8a52-4c3b-b737-a980296a57c1" /> 
+    <a
+href="https://pin.it/4FwL9Uuzd">pinterest</a>
   ·
   <a href="https://www.tiktok.com/@strvbykim?_r=1&_t=ZN-98uARrxsxCY">tt</a>
   𔘓   ֹ  
