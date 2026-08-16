@@ -48,8 +48,9 @@ href="https://pin.it/4FwL9Uuzd">pinterest</a>
 <p align="center">
 
 <a href="https://rentry.co/komahinaaaa">
-<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=21&duration=1&pause=999999&color=5B5B5B&center=true&vCenter=true&repeat=false&width=180&height=28&lines=%E2%99%A1+me+%26+her+%E2%99%A1">
+<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=21&duration=1&pause=999999&color=7589A4&center=true&vCenter=true&repeat=false&width=180&height=28&lines=%E2%99%A1+me+%26+her+%E2%99%A1">
 </a>
 
 <br>
 
+<img width="3352" height="1563" alt="1000171742" src="https://github.com/user-attachments/assets/159c9360-fa03-468f-bae4-f11b6e296d60" />
