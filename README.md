@@ -16,7 +16,7 @@
 
 
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=22&duration=3500&pause=1200&color=323232&center=true&vCenter=true&width=450&height=30&lines=%22i+love+koi+fish,+i+wonder+why?%22" />
+<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=28&duration=3500&pause=1400&color=7C8EAE&center=true&vCenter=true&multiline=true&repeat=false&width=900&height=115&lines=Ichika%3A+%E2%80%9CI%E2%80%99m+actually+singing+with+Haruka...%21%E2%80%9D;Haruka%3A+%E2%80%9CI%E2%80%99m+glad+I+get+to+sing+with+you+too%2C+Ichika.%E2%80%9D">
 </p>
 
 <img width="3352" height="1415" alt="1000171555" src="https://github.com/user-attachments/assets/f370dce2-5045-436e-b62a-6fb856286d77" />
