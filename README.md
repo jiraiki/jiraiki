@@ -41,7 +41,8 @@ href="https://pin.it/4FwL9Uuzd">pinterest</a>
   ·
   <a href="https://www.tiktok.com/@strvbykim?_r=1&_t=ZN-98uARrxsxCY">tt</a>
   𔘓   ֹ  
-  
+  <a
+href="https://strvbykim.straw.page/">strawpage</a>
 </p>
 
 
