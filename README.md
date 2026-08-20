@@ -42,9 +42,14 @@ href="https://pin.it/4FwL9Uuzd">pinterest</a>
   <a href="https://www.tiktok.com/@strvbykim?_r=1&_t=ZN-98uARrxsxCY">tt</a>
   𔘓   ֹ  
   <a
-href="https://strvbykim.straw.page/">strawpage</a>
+href="https://strvbykim.straw.page/">strawpage</a> ♡
+<a
+href="https://mobile.capcutshare.com/sv2/ZSVUo64s8//">capcut</a> 💤
+  <a
+href="https://strvbykim.atabook.org//">ata</a> 🦭
+  <a
+href="https://www.roblox.com/users/profile?username=fuzzelwzzel">rblx</a>
 </p>
-
 
 <p align="center">
 
