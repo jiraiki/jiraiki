@@ -1,4 +1,7 @@
-<img width="3353" height="2247" alt="1000171592" src="https://github.com/user-attachments/assets/5f77efe1-839f-46e4-8ae0-399bcc40f667" />
+<img width="2048" height="2048" alt="1000175872" src="https://github.com/user-attachments/assets/2afd4fe6-3be3-4876-9c92-496517de878a" />
+<img width="2048" height="518" alt="1000175870" src="https://github.com/user-attachments/assets/ed295f01-03bc-4550-bad5-9ebc8de96880" />
+
+
 
 
 
@@ -6,7 +9,7 @@
 
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+ichiharulings+%E0%AD%A8%E0%AD%A7&color=7589A4&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა <img width="20" height="20" alt="1000171588" src="https://github.com/user-attachments/assets/4fe2f585-459e-4281-9a81-fc33598512c9" />
+<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+ichiharulings+%E0%AD%A8%E0%AD%A7&color=ECFFFF&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა 
 [rentry](https://rentry.co/kimsc)
 
 
@@ -14,12 +17,22 @@
 
 </p>
 
-
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=28&duration=3500&pause=1400&color=7C8EAE&center=true&vCenter=true&multiline=true&repeat=false&width=900&height=115&lines=Ichika%3A+%E2%80%9CI%E2%80%99m+actually+singing+with+Haruka...%21%E2%80%9D;Haruka%3A+%E2%80%9CI%E2%80%99m+glad+I+get+to+sing+with+you+too%2C+Ichika.%E2%80%9D">
+<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=28&duration=3500&pause=1400&color=F4CBFA&center=true&vCenter=true&multiline=true&repeat=true&width=850&height=120&lines=%E2%99%A1+I%27m+KAngel%2C+your+favorite+angel+%E2%99%A1;I+want+to+be+loved+by+everyone.;%E2%98%86+Don%27t+take+your+eyes+off+me.+%E2%98%86;You%27re+watching%2C+right%3F">
 </p>
 
-<img width="3352" height="1415" alt="1000171555" src="https://github.com/user-attachments/assets/f370dce2-5045-436e-b62a-6fb856286d77" />
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=40&duration=3500&pause=1000&color=EBD1FF&center=true&vCenter=true&repeat=false&width=800&height=70&lines=Do+you+love+me%3F">
+</p>
+
+<p align="center">
+  <a href="https://straw.page/make?id=iloveyousokangel">yes ♡</a>
+  ㅤㅤ
+  <a href="https://straw.page/make?id=iloveyousokangel">no ♡</a>
+</p>
+
+<img width="2048" height="707" alt="1000175871" src="https://github.com/user-attachments/assets/698dc3f6-4692-4db1-bd7a-363063fc462a" />
+
 
 
 <p align="center">
@@ -30,17 +43,17 @@
 
 <p align="center">
 
-<img width="3352" height="491" alt="1000171556" src="https://github.com/user-attachments/assets/d7c7d204-89b1-4dad-87ac-0560852c75b4" />
+<img width="2048" height="112" alt="1000175869" src="https://github.com/user-attachments/assets/a420f00d-6d99-42b2-a49a-0780008decb2" />
+
 
 
 
 <p align="center">
-  <img width="18" height="19" alt="1000171587" src="https://github.com/user-attachments/assets/e677e882-8a52-4c3b-b737-a980296a57c1" /> 
-    <a
-href="https://pin.it/4FwL9Uuzd">pinterest</a>
-  ·
-  <a href="https://www.tiktok.com/@strvbykim?_r=1&_t=ZN-98uARrxsxCY">tt</a>
-  𔘓   ֹ  
+  
+   <a   
+href="https://pin.it/4FwL9Uuzd">pinterest· <a
+  href="https://www.tiktok.com/@strvbykim?_r=1&_t=ZN-98uARrxsxCY">tt</a>
+  𔘓   ֹ  </p>
   <a
 href="https://strvbykim.straw.page/">strawpage</a> ♡
 <a
@@ -54,9 +67,9 @@ href="https://www.roblox.com/users/profile?username=fuzzelwzzel">rblx</a>
 <p align="center">
 
 <a href="https://rentry.co/komahinaaaa">
-<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=21&duration=1&pause=999999&color=7589A4&center=true&vCenter=true&repeat=false&width=180&height=28&lines=%E2%99%A1+me+%26+her+%E2%99%A1">
+<img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=21&duration=1&pause=999999&color=EBD1FF&center=true&vCenter=true&repeat=false&width=180&height=28&lines=%E2%99%A1+me+%26+her+%E2%99%A1">
 </a>
 
 <br>
 
-<img width="3352" height="1563" alt="1000171742" src="https://github.com/user-attachments/assets/159c9360-fa03-468f-bae4-f11b6e296d60" />
+
