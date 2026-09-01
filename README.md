@@ -26,9 +26,9 @@
 </p>
 
 <p align="center">
-  <a href="https://straw.page/make?id=iloveyousokangel">yes ♡</a>
+  <a href="https://iloveyousokangel.straw.page/">yes ♡</a>
   ㅤㅤ
-  <a href="https://straw.page/make?id=iloveyousokangel">no ♡</a>
+  <a href="https://iloveyousokangel.straw.page/">no ♡</a>
 </p>
 
 <img width="2048" height="707" alt="1000175871" src="https://github.com/user-attachments/assets/698dc3f6-4692-4db1-bd7a-363063fc462a" />
