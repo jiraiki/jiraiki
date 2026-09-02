@@ -29,9 +29,9 @@
 </p>
 
 <p align="center">
-  <a href="https://iloveyousokangel.straw.page/">yes ♡</a>
+  <a href="https://guns.lol/yurisoneandonly">yes ♡</a>
   ㅤㅤ
-  <a href="https://iloveyousokangel.straw.page/">no ♡</a>
+  <a href="https://guns.lol/yurisoneandonly">no ♡</a>
 </p>
 
 <img width="2048" height="700" alt="1000176009" src="https://github.com/user-attachments/assets/e9d64db4-c3e6-4cf9-8260-18cbc15f5791" />
