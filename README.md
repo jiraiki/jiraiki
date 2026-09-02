@@ -12,7 +12,7 @@
 
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+ichiharulings+%E0%AD%A8%E0%AD%A7&color=ECFFFF&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა 
+<img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+BLESSES+%E0%AD%A8%E0%AD%A7&color=ECFFFF&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა 
 [rentry](https://rentry.co/kimsc)
 
 
@@ -34,7 +34,8 @@
   <a href="https://iloveyousokangel.straw.page/">no ♡</a>
 </p>
 
-<img width="2048" height="707" alt="1000175871" src="https://github.com/user-attachments/assets/698dc3f6-4692-4db1-bd7a-363063fc462a" />
+<img width="2048" height="700" alt="1000176009" src="https://github.com/user-attachments/assets/e9d64db4-c3e6-4cf9-8260-18cbc15f5791" />
+
 
 
 
@@ -49,14 +50,11 @@
 <img width="2048" height="112" alt="1000175869" src="https://github.com/user-attachments/assets/a420f00d-6d99-42b2-a49a-0780008decb2" />
 
 
-
-
 <p align="center">
-  
-   <a   
-href="https://pin.it/4FwL9Uuzd">pinterest· <a
-  href="https://www.tiktok.com/@strvbykim?_r=1&_t=ZN-98uARrxsxCY">tt</a>
-  𔘓   ֹ  </p>
+  <a href="https://pin.it/4FwL9Uuzd">pinterest</a> 𔘓 <a href="https://www.tiktok.com/@strvbykim?_r=1&_t=ZN-98uARrxsxCY">tt</a>
+</p>
+
+
   <a
 href="https://strvbykim.straw.page/">strawpage</a> ♡
 <a
@@ -64,7 +62,9 @@ href="https://mobile.capcutshare.com/sv2/ZSVUo64s8//">capcut</a> 💤
   <a
 href="https://strvbykim.atabook.org//">ata</a> 🦭
   <a
-href="https://www.roblox.com/users/profile?username=fuzzelwzzel">rblx</a>
+href="https://www.roblox.com/users/profile?username=fuzzelwzzel">rblx</a> ༉
+<a
+href="https://rentry.co/furibinaa">rentry ²</a>
 </p>
 
 <p align="center">
