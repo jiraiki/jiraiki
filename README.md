@@ -62,9 +62,9 @@ href="https://mobile.capcutshare.com/sv2/ZSVUo64s8//">capcut</a> 💤
   <a
 href="https://strvbykim.atabook.org//">ata</a> 🦭
   <a
-href="https://www.roblox.com/users/profile?username=fuzzelwzzel">rblx</a> ༉
+href="https://www.roblox.com/users/profile?username=fuzzelwzzel">rblx</a> 
 <a
-href="https://rentry.co/furibinaa">rentry ²</a>
+href="https://guns.lol/jiraiki">guns.lol</a>
 </p>
 
 <p align="center">
