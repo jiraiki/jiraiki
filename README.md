@@ -56,7 +56,7 @@
 
 
   <a
-href="https://strvbykim.straw.page/">strawpage</a> ♡
+href="https://strvbykimm.straw.page/">strawpage</a> ♡
 <a
 href="https://mobile.capcutshare.com/sv2/ZSVUo64s8//">capcut</a> 💤
   <a
