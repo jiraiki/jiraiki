@@ -10,7 +10,8 @@
 <p align="center">
 
 <img src="https://komarev.com/ghpvc/?username=strvbykimi&label=%E0%AD%A8%E0%AD%A7+BLESSES+%E0%AD%A8%E0%AD%A7&color=EDADEE&style=flat">  ૮꒰˶ᵔ ᗜ ᵔ˶꒱ა 
-[rentry](https://rentry.co/kimsc)
+[rentry](https://rentry.co/kimsc) <img width="20" height="20" alt="1000184297" src="https://github.com/user-attachments/assets/e54f1fb3-c606-40e2-ab9e-1d7c5c7d74c2" />
+
 
 
 
@@ -24,12 +25,18 @@
   [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=AE70CD&center=true&width=435&lines=Only+you+and+me.)](https://git.io/typing-svg)
   [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=995EC1&center=true&width=435&lines=Oh+my%2C+sweet+scar)](https://git.io/typing-svg)
 
+<img width="2048" height="1030" alt="1000184292" src="https://github.com/user-attachments/assets/997ff317-eefc-4a4a-86a6-5a88eae0f48b" />
+
+
+
 <img width="1488" height="218" alt="1000184028" src="https://github.com/user-attachments/assets/6d1ad8e1-cf6e-46d4-b17c-a52859010a06" /> <img width="1512" height="226" alt="1000184029" src="https://github.com/user-attachments/assets/db661736-7b3b-45eb-8539-c74ed0e39cb8" />
 
 
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=40&duration=3500&pause=1000&color=E8DAE7&center=true&vCenter=true&repeat=false&width=800&height=70&lines=Do+you+love+me%3F">
+  <img src="https://readme-typing-svg.demolab.com?font=Gaegu&size=40&duration=3500&pause=1000&color=E8DAE7&center=true&vCenter=true&repeat=false&width=800&height=70&lines=Do+you+love+me%3F"> <img width="20" height="20" alt="1000184298" src="https://github.com/user-attachments/assets/267fe2e5-5060-4e47-a6c1-dadf4c2c79d0" />
+
+
 </p>
 
 <p align="center">
@@ -58,7 +65,8 @@
 
 <p align="center">
   <a href="https://pin.it/4FwL9Uuzd">pinterest</a> 𔘓 <a href="https://www.tiktok.com/@strvbykim?_r=1&_t=ZN-98uARrxsxCY">tt</a>
-</p>
+ <img width="20" height="20" alt="1000184296" src="https://github.com/user-attachments/assets/4148e461-178b-4384-b2bb-da805453b76c" /> </p>
+
 
 
   <a
@@ -70,7 +78,8 @@ href="https://strvbykim.atabook.org//">ata</a> 🦭
   <a
 href="https://www.roblox.com/users/profile?username=fuzzelwzzel">rblx</a> 
 <a
-href="https://guns.lol/jiraiki">guns.lol</a>
+href="https://guns.lol/jiraiki">guns.lol</a> 
+
 </p>
 
 <p align="center">
