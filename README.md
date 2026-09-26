@@ -1,4 +1,5 @@
-<img width="2048" height="1585" alt="1000184026" src="https://github.com/user-attachments/assets/93b7f4ad-5df5-438f-a7b6-e3dc5eaec473" />
+<img width="2048" height="1456" alt="1000187147" src="https://github.com/user-attachments/assets/b9bf55eb-2196-40cc-94aa-4307469ad733" />
+
 
 
 
@@ -19,17 +20,15 @@
 </p>
 
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=FCE5DB&center=true&width=435&lines=You!+Are!+Mine!+Chu!)](https://git.io/typing-svg)
-  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=E8DAE7&center=true&width=435&lines=We'll+rot+away+together)](https://git.io/typing-svg)
-  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=EDADEE&center=true&width=435&lines=Beautifully+insane)](https://git.io/typing-svg)
-  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=AE70CD&center=true&width=435&lines=Only+you+and+me.)](https://git.io/typing-svg)
-  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=995EC1&center=true&width=435&lines=Oh+my%2C+sweet+scar)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=FCE5DB&center=true&width=435&lines=I've+made+peace+)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=E8DAE7&center=true&width=435&lines=with+the+fact+that)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=EDADEE&center=true&width=435&lines=i'm+a+lowly,+stupid,)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=AE70CD&center=true&width=435&lines=insignificant+human..)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1&pause=1000&color=995EC1&center=true&width=435&lines=who+can't+do+anything+right.)](https://git.io/typing-svg)
 
-<img width="2048" height="1030" alt="1000184292" src="https://github.com/user-attachments/assets/997ff317-eefc-4a4a-86a6-5a88eae0f48b" />
+<img width="1959" height="1231" alt="1000187160" src="https://github.com/user-attachments/assets/6c24cc21-19de-4080-8982-4ff79147e707" />
 
-
-
-<img width="1488" height="218" alt="1000184028" src="https://github.com/user-attachments/assets/6d1ad8e1-cf6e-46d4-b17c-a52859010a06" /> <img width="1512" height="226" alt="1000184029" src="https://github.com/user-attachments/assets/db661736-7b3b-45eb-8539-c74ed0e39cb8" />
+<img width="2048" height="465" alt="1000187148" src="https://github.com/user-attachments/assets/59997cdc-7d84-43b7-802c-b9e27354bcae" />
 
 
 
@@ -84,6 +83,7 @@ href="https://guns.lol/jiraiki">guns.lol</a>
 
 <p align="center">
 
-<img width="2022" height="1176" alt="1000184038" src="https://github.com/user-attachments/assets/b223c6ae-3f41-43c1-81db-eb391e70f567" />
+<img width="2048" height="1456" alt="1000187161" src="https://github.com/user-attachments/assets/decf4149-4811-4b46-85b9-7f9f3c6c6786" />
+
 
 
